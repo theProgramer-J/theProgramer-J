@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-# [My discord](discord.gg/mErcKpm8Cn)
+# [My discord](https://discord.gg/mErcKpm8Cn)
 <!--
 **theProgramer-J/theProgramer-J** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
